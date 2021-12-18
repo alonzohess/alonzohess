@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @alonzohess
+- I’m interested in a lot of things. I'm a hack coder, terrible really please be kind if you look at any of the code here.
